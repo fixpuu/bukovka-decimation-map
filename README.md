@@ -8,8 +8,7 @@
 
 ## 📥 Download  
 Click the link below, then click the 🌐 icon where there are all the socials to open the download link.
- [HERE!]([https://your-link-here.com](https://guns.lol/xfx)) 
-
+https://guns.lol/xfx
 ---
 
 ## ⚠️ Disclaimer
